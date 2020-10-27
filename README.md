@@ -123,3 +123,7 @@ Non better define me than **Passionate**
 ### Colloboration
 > Always open to conversations
 
+|    [<img src="https://raw.githubusercontent.com/wiki/32teeth/GabozePocaio-Round1/images/icons/github.png" width="40px">](https://github.com/32teeth)[<img src="https://raw.githubusercontent.com/wiki/32teeth/GabozePocaio-Round1/images/icons/instagram.png" width="40px">](https://www.instagram.com/gabozepocaio/)[<img src="https://raw.githubusercontent.com/wiki/32teeth/GabozePocaio-Round1/images/icons/messenger.png" width="40px">](https://www.facebook.com/messages/t/gabozepocaio)|
+| ---- |
+| Find me on the internet |
+
