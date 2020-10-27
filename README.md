@@ -132,4 +132,4 @@ Non better define me than **Passionate**
 # Thank you for reading
 > You've made it this far...  ...be sure to **⭐ Star** Me
 
-I'll star you back. Because we are all stars!
+I'll ⭐ star you back. Because we are all 🌟 stars!
